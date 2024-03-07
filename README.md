@@ -5,4 +5,4 @@
 
 ## Now, don't be startled by the styling—it's a work in progress, like a masterpiece in the making! 🎨✏️ But fear not, the real charm lies in the ability to make your contacts dance to your tune, even if they're just ones and zeros. 💃🕺
 
-So, let the good times roll, contacts flow, and may your database become the hippest spot in the digital universe! 🚀📞😂
+## So, let the good times roll, contacts flow, and may your database become the hippest spot in the digital universe! 🚀📞😂
